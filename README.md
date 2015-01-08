@@ -1,0 +1,2 @@
+# contoh
+gue ganteng
